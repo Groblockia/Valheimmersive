@@ -1,4 +1,4 @@
-### Rune: Hagalaz
+### Rune: [Hagalaz](https://en.wikipedia.org/wiki/Haglaz)
 
 ### Lore: 
 Brynjar Oathbreaker walks where thunder once slept.
