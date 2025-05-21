@@ -1,4 +1,4 @@
-### Rune: Kaunaz
+### Rune: [Kaunan](https://en.wikipedia.org/wiki/Kaunan)
 
 ### Lore: 
 Peder Ironsong was born on a night when the aurora split the sky into rivers of green fire. His mother, a shieldmaiden, claimed his father was none other than Bragi, the skald-god of poetry and craft. The old women of the village laughed at the idea — until the baby came into the world gripping a glowing stone and the Kenaz rune, symbol of fire, knowledge, and creation, flared red-hot on his chest.
