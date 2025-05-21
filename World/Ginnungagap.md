@@ -1,0 +1,1 @@
+Many ages ago, the gods determined each and every one of us had slighted them in some way, that we deserved to be imprisoned. Well we've been here for way too long, now. We're mad, we want to overthrow the gods. So join me and your fellow demigods to destroy the gods.
